@@ -41,11 +41,6 @@ We offer a wide range of catering services, including:
 ## Booking
 To book our catering services, please contact us via our website or call our customer service. We recommend booking at least 2 weeks in advance to ensure availability.
 
-## Contact Us
-For inquiries, please reach out to us:
-- **Phone:** 555-1234-5678
-- **Email:** info@kohinoorcaterer.com
-- **Website:** [koihinoorcaterer.com](https://kohinoorcaterer.com)
 
 Thank you for considering Kohinoor Caterer for your catering needs! We look forward to serving you.
 
